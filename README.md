@@ -1,1 +1,1 @@
-# julurikarthik.github.io
+google.com, pub-5683046792524734, DIRECT, f08c47fec0942fa0
